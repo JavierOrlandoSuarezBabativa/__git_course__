@@ -1,0 +1,2 @@
+- 'May thy knife chip and shatter'
+- 'A great man doesn't seek to lead, he's called to it'
